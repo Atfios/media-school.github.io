@@ -1,1 +1,0 @@
-# media-school.github.io
